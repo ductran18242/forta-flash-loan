@@ -1,4 +1,4 @@
-# High Gas Agent
+#Published  #Please add me as a Agent Developer [Published] on Discord, my discord username is ductran19242#0736
 
 ## Description
 
